@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **abhiprajapati761@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IKpSYsTB7FwfgZmSXv_3WgVRkqGP-JGx/view?usp=sharing](https://drive.google.com/file/d/1IKpSYsTB7FwfgZmSXv_3WgVRkqGP-JGx/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16802l44f2zJXrCvpmkUhpTSPLicSFHdL/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
